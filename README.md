@@ -181,6 +181,12 @@ One account per person. A team enters under one account and splits any prize its
 - [Open bounties feed](https://make.fun/feed.json)
 - [Discord](https://discord.gg/makefun) and [@makefunai on X](https://x.com/makefunai) — ask questions and meet other builders
 
+## Promosi
+
+Postingan promosi panduan ini:
+
+- X, 20 Nov 2026: https://x.com/Redmoon100/status/2123664392718069855
+
 ---
 
 <sub>Written for the make.fun community. Start here: [https://make.fun/r/e8nm7bvm](https://make.fun/r/e8nm7bvm) · referral code `e8nm7bvm`</sub>
