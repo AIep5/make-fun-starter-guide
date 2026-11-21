@@ -187,6 +187,7 @@ Postingan promosi panduan ini:
 
 - X, 20 Nov 2026: https://x.com/Redmoon100/status/2123664392718069855
 - Threads, 20 Nov 2026: https://www.threads.com/@umie_lili/post/Df99NghI5av
+- X, 21 Nov 2026: https://x.com/Redmoon100/status/2124002290763976757
 
 ---
 
